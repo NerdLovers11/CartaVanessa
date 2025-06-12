@@ -1,2 +1,0 @@
-# CartaVanessa
-carta de amor
